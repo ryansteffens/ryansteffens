@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ryansteffens
 - 👀 I’m interested in innovative green technologies, product design, making art, and cooking.
-- 🌱 I’m currently learning how to code
-- 💞️ Co-founder @ Rover Labs + DropParty
+- 🌱 Co-founder of Rover Labs + DropParty
+- 💞️ Love nature and the environment :)
 - 📫 Reach me on Discord @ryansteffens#7582, or message me on LinkedIn @ https://www.linkedin.com/in/ryansteffens/
